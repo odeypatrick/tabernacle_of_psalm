@@ -1,1 +1,1 @@
-# tabernaclce_of_psalm
+# tabernacle_of_psalms
